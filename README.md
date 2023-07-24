@@ -1,3 +1,0 @@
-# alvrmiguel.github.io
-
-👍
